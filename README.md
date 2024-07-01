@@ -4,4 +4,4 @@
 
 - 🔭 I’m currently working on to stay more active
 - 🌱 I’m currently learning web development
-- ❤️ Best wishes to everyone
+- ❤️ Best wishes to everyobody
